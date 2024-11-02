@@ -4,7 +4,7 @@
 Luis Emil D. Lauz
 
 ## Education
-New Era university (Bachelor’s in Information Technology)
+New Era University (Bachelor’s in Information Technology)
 
 
 ## Certifications
